@@ -1,4 +1,6 @@
-# Equilibri estetici e identità nei paesaggi urbani
+# elgrecotreviso
+
+Equilibri estetici e identità nei paesaggi urbani
 
 Attraverso lo studio e la valorizzazione dei grandi spazi pubblici europei, emerge un legame profondo tra architettura, cultura e rappresentazione sociale. Alcuni edifici, spesso noti al grande pubblico per la loro funzione mondana, sono in realtà veri e propri simboli artistici e storici. Questo fascino non si è perso con il tempo, ma ha trovato nuova linfa anche in contesti digitali: è il caso dei migliori casinò online europei, che nei propri ambienti grafici richiamano lo stile e la raffinatezza di antichi palazzi, contribuendo a rendere i siti di casinò non solo luoghi di intrattenimento ma anche esperienze visive ispirate alla grande tradizione architettonica del continente.
 
